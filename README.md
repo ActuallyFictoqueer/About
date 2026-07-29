@@ -26,3 +26,11 @@ Fictoqueer -  **this** is an umbrella term for fictos of all kinds (romantic, se
 
 [Fictorose](https://lgbtqia.wiki/wiki/Fictorose)
 
+
+
+# Why?
+For me, it's cause fictional characters are better. ... and won't be douchebags. I never really found real people to be attractive, and the idiots ive met, and just bad people in general are the reason i am what i am.
+
+
+For other people, they might just be aroace, or arospec, and they find characters more appealing
+
